@@ -1,4 +1,4 @@
-![Waystones studio banner](https://github.com/user-attachments/assets/b2f39ec3-6ef7-4503-8560-485226f30ce3)
+![Waystones studio banner](https://github.com/user-attachments/assets/611959c3-45f0-4b67-938c-261023e24929)
 
 > Where stories awaken.
 
